@@ -3,7 +3,7 @@
 
 
 ### CONTACTS
-- [E-mail](mailto:skk_srt@bk.ru)
+- [E-mail](skk_srt@bk.ru)
 - [TG](https://t.me/ch00ps)
 - phone
 
