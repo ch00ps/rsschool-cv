@@ -1,11 +1,10 @@
-# Ruslan 
-# Nekrasov
+# Ruslan Nekrasov
 
 
 ### CONTACTS
-- [E-mail](skk_srt@bk.ru)
-- [TG](https://t.me/ch00ps)
-- phone
+- __E-MAIL__ skk_srt@bk.ru
+- __[TG](https://t.me/ch00ps)__
+- __DISCORD__ mr.Meow#8427
 
 
 ### ABOUT ME
